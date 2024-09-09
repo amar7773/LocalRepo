@@ -1,2 +1,1 @@
-# This is My Local Repocl
-# jai shree ram to all of you 
+# JAI SHREE RAM TO MY ALL FIRENDS 
